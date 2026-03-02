@@ -1,7 +1,9 @@
 # Why-are-petrol-prices-rising-in-India
 Petrol prices in India rise due to higher global crude prices, currency exchange effects, and heavy taxes added by central and state governments.
+
 Why Are Petrol Prices Rising in India?
-Petrol prices in India have been increasing frequently, affecting daily commuters, businesses, and transportation costs. Since India imports nearly 85% of its crude oil requirements, global market fluctuations directly impact domestic fuel prices.
+
+[Petrol prices in India](https://youtu.be/MsyUXF3xLtA) have been increasing frequently, affecting daily commuters, businesses, and transportation costs. Since India imports nearly 85% of its crude oil requirements, global market fluctuations directly impact domestic fuel prices.
 
 1. Increase in Global Crude Oil Prices
 
